@@ -1,5 +1,4 @@
-mensagem do dia 
-https://copilot.microsoft.com/shares/w1abdPAw2X1wGSHiVQMGb
+
 # 🙏 Meditação da Manhã
 
 ## Confie no Senhor
